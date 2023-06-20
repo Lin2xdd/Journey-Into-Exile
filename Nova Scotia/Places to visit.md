@@ -3,4 +3,4 @@
 - Surfing/bodyboarding
 - Beach
 - SUP
-- 
+- Skateboarding
