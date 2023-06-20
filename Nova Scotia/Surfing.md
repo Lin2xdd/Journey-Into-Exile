@@ -3,6 +3,8 @@
 - Locations
 - Lessons and Rentals
 - Communities
+ https://lawrencetownbeach.net/
+ https://www.instagram.com/surfnovascotia/?hl=en
 - Hostels
 - Commute to Halifax
   - No buses, but you can ride (1.5 hours)
