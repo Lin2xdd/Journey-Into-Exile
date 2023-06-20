@@ -5,3 +5,4 @@
 - Communities
 - Hostels
 - Commute to Halifax
+- Surfing seasons
