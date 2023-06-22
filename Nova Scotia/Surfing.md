@@ -16,4 +16,4 @@
 
 - Surfing seasons
 - Season
- - Outdoor events at Halifax
+ - Outdoor events at Halifax: Antigonish Highland Games, Halifax Jazz Festival, Stan Rogers Folk Festival
