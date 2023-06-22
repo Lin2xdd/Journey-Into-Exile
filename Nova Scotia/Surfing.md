@@ -15,3 +15,5 @@
 
 
 - Surfing seasons
+- Season
+ - Outdoor events at Halifax
