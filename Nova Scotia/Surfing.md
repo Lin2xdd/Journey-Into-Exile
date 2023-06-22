@@ -16,4 +16,5 @@
 
 - Surfing seasons
 - Season
- - Outdoor events at Halifax: Antigonish Highland Games, Halifax Jazz Festival, Stan Rogers Folk Festival
+ - July: Antigonish Highland Games, Halifax Jazz Festival, Stan Rogers Folk Festival
+ - August: Halifax Busker Festival, Festival Acadien, Digby Scallop Days
