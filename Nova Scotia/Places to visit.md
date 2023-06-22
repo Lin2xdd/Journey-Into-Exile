@@ -19,7 +19,6 @@
 - Bella Rose Arts Centre
 - Halifax Central Library
 
-
 # Events
 - Canadian Forces Performance at noon(Jul 1)
 - Halifax Pride 20-30 Jul
@@ -28,4 +27,4 @@
 - Citadel Hill
 - Halifax Town Clock
 
-  
+# Public Spaces
