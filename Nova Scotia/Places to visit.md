@@ -28,3 +28,6 @@
 - Halifax Town Clock
 
 # Public Spaces
+
+# No sheesha bar
+- Go to middle eastern or indian stores and they should have them 
