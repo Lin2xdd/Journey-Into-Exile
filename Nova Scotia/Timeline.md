@@ -12,3 +12,4 @@
 - finish PGWP before that
 - Get a more detailed visit plan(housing, transit, places to visit, mindset shift, etc)
 - Only thing to worry about is the work thing
+- Will my body able to adjust to the change? Better apartment and everything else. 
