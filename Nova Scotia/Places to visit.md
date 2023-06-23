@@ -4,6 +4,7 @@
 - Beach
 - SUP
 - Skateboarding
+- Paddling: Sullivan's Pond and Lake Banook
 
 # Street
 - Harrington Street
@@ -19,15 +20,31 @@
 - Bella Rose Arts Centre
 - Halifax Central Library
 
+## Historical
+- Citadel Hill
+- Halifax Town Clock
+
+## Public Spaces
+### Waterfront
+- Boardwalk in Halifax
+- Dartmouth waterfront trail in Dartmouth
+
+### Park
+- Halifax Common
+- Citadel Hill: sun-bathing and kite-flying
+- Halifax Public Gardens
+- Victoria Park
+- Point Pleasant Park
+- Dartmouth Commons
+- Sulivan's Pond and Lake Banook: paddling
+- Shubie Park
+
 # Events
 - Canadian Forces Performance at noon(Jul 1)
 - Halifax Pride 20-30 Jul
 
-# Historical
-- Citadel Hill
-- Halifax Town Clock
 
-# Public Spaces
+
 
 # No sheesha bar
 - Go to middle eastern or indian stores and they should have them 
