@@ -5,6 +5,7 @@
 - SUP
 - Skateboarding
 - Paddling: Sullivan's Pond and Lake Banook
+- Cool stuff at Nova Scotia https://parks.canada.ca/voyage-travel/conseils-tips/cool
 
 # Street
 - Harrington Street
