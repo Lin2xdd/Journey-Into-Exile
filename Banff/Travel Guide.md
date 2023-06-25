@@ -15,9 +15,10 @@ hi alpine
   - latern tour is not available
   - Spend 30+30+30 min
 - Lake Louise
-  - Morning: 8am, 1 hr to get there. Go to the glacier trail (4 hours). 
+  - Morning: 8am, 1 hr to get there; Horseback riding 2 hours.
   - Mountain Restaurant: steak
 - Cascade Pond
+- Eat at Lake Louise
 
 # Weather
 
