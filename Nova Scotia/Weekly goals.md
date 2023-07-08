@@ -6,3 +6,7 @@
 ## Sunday
 - Go to a provincial park
 - events?
+
+# Week 2 Surfing
+
+# Week 3: Sydney and east of the east
