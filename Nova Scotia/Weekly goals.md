@@ -1,10 +1,12 @@
-# Week 1 weekend
+# Week 1 
+## Weekdays: settle down, get  groceries, etc
 ## Saturday
-- Indoor: museum, art gallery and national historic site
+- Indoor: national historic site
+- Go to watch ship loading and read and chill
 - Outdoor: nightlife at waterfront(events?)
-- Outdoor: watersports nearby?
+
 ## Sunday
-- Go to a provincial park
+- Go to a provincial park (long lake provincial park: check out more about biking trails, hiking trails, swim places)
 - events?
 
 # Week 2 Surfing
