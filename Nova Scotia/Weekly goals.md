@@ -9,4 +9,4 @@
 
 # Week 2 Surfing
 
-# Week 3: Sydney and east of the east
+# Week 3: Sydney and east of the east (depends on my stay, can start from dartmouth)
