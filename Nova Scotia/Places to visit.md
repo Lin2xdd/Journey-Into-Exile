@@ -39,6 +39,7 @@
 - Dartmouth Commons
 - Sulivan's Pond and Lake Banook: paddling
 - Shubie Park
+- Fortress of Louisbourg National Historic Site — Nova Scotia: Fire a cannon and a musket, Sleep in a prison
 
 # Events
 - Canadian Forces Performance at noon(Jul 1)
