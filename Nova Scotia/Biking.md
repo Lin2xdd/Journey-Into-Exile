@@ -1,1 +1,2 @@
 # Halifax region
+- Lakes, trails
