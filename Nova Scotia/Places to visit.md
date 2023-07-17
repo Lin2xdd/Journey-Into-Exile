@@ -41,6 +41,10 @@
 - Shubie Park
 - Fortress of Louisbourg National Historic Site — Nova Scotia: Fire a cannon and a musket, Sleep in a prison
 
+### Public library
+- Workshops: health wellness, knitting and bike maintenance
+- Resources: musical instruments
+
 # Events
 - Canadian Forces Performance at noon(Jul 1)
 - Halifax Pride 20-30 Jul
