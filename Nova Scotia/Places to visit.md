@@ -50,7 +50,9 @@
 - Halifax Pride 20-30 Jul
 
 
-
-
 # No sheesha bar
 - Go to middle eastern or indian stores and they should have them 
+
+# Lucy's list
+- Fishing
+- Sailing boat
