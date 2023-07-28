@@ -56,3 +56,5 @@
 # Lucy's list
 - Fishing
 - Sailing boat
+- Dancing
+- Sunbathing
