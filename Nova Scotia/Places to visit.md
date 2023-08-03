@@ -64,7 +64,7 @@
   https://www.ambassatours.com/halifax-party-cruise
 - motor boat
 # Inshore adventure
-- Sea kayaking
+- Sea kayaking: $65 sunset tour, https://www.theharbourwatercraft.com/sea-kayak
 - Sailing boat
 - Dancing
 - Sunbathing
