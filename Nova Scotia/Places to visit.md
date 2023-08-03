@@ -58,3 +58,6 @@
 - Sailing boat
 - Dancing
 - Sunbathing
+
+# Outdoor adventures
+https://www.novascotia.com/see-do/outdoor-activities/rafting
