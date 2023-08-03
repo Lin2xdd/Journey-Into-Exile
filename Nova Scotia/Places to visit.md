@@ -54,20 +54,24 @@
 - Go to middle eastern or indian stores and they should have them 
 
 # Lucy's list
-## Fishing
+## INSHORE adventure
 - Deep sea fishing: very expensive 700-800/person
+- Inshore fishing: $95, https://www.seahfx.com/fishingtours
 - whitewater fishing:
-- Boat sailing: 
+- Yacht sailing: 
   $75/person: during the day, at night, etc; involved in sailing, https://www.jfsailingtours.com/tours
   https://www.ambassatours.com/
 - Boat party $30/person
   https://www.ambassatours.com/halifax-party-cruise
 - motor boat
-# Inshore adventure
 - Sea kayaking: $65 sunset tour, https://www.theharbourwatercraft.com/sea-kayak
-- Sailing boat
-- Dancing
-- Sunbathing
+
+## Dancing: salsa dance club Thursdays and Saturdays
+## Sunbathing: citadel hill
+## Night adventure: point pleasant park and watch sailing; sea kayaking, 
+## Parks：north end park. 
+## Trails: Cole Harbor and biking (rent a bike), and then go surfing. 
+## Car racing
 
 ## Day-trip to peggy cove & george's island
 https://www.ambassatours.com/visit-georges-island
@@ -75,6 +79,12 @@ https://www.ambassatours.com/visit-georges-island
 ## Others
 https://www.viator.com/en-CA/Halifax-tours/Sailing-Trips/d4403-g3-c10
 
-# Outdoor adventures
+## Outdoor adventures
 https://www.novascotia.com/see-do/outdoor-activities/rafting
+
+## Restaurants
+- African
+- Philipino
+- Seafood: bicycle thief, Ristorante a Mano, fish & chips
+- Latin: antojo taco
 
