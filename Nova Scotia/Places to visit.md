@@ -54,7 +54,13 @@
 - Go to middle eastern or indian stores and they should have them 
 
 # Lucy's list
-- Fishing
+## Fishing
+- Deep sea fishing: very expensive 700-800/person
+- whitewater fishing:
+- Boat sailing
+- Boat party
+- motor boat
+
 - Sailing boat
 - Dancing
 - Sunbathing
