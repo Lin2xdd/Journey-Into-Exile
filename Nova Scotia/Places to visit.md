@@ -57,13 +57,21 @@
 ## Fishing
 - Deep sea fishing: very expensive 700-800/person
 - whitewater fishing:
-- Boat sailing
+- Boat sailing: 
+  $75/person: during the day, at night, etc; involved in sailing, https://www.jfsailingtours.com/tours
+  https://www.ambassatours.com/
 - Boat party
 - motor boat
-
+# Inshore adventure
+- Sea kayaking
 - Sailing boat
 - Dancing
 - Sunbathing
 
+## Day-trip to peggy cove
+## Others
+https://www.viator.com/en-CA/Halifax-tours/Sailing-Trips/d4403-g3-c10
+
 # Outdoor adventures
 https://www.novascotia.com/see-do/outdoor-activities/rafting
+
