@@ -60,7 +60,8 @@
 - Boat sailing: 
   $75/person: during the day, at night, etc; involved in sailing, https://www.jfsailingtours.com/tours
   https://www.ambassatours.com/
-- Boat party
+- Boat party $30/person
+  https://www.ambassatours.com/halifax-party-cruise
 - motor boat
 # Inshore adventure
 - Sea kayaking
@@ -68,7 +69,9 @@
 - Dancing
 - Sunbathing
 
-## Day-trip to peggy cove
+## Day-trip to peggy cove & george's island
+https://www.ambassatours.com/visit-georges-island
+
 ## Others
 https://www.viator.com/en-CA/Halifax-tours/Sailing-Trips/d4403-g3-c10
 
