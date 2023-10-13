@@ -14,5 +14,8 @@ shorts /one-piece
 
 ![image](https://github.com/Lin2xdd/Journey-Into-Exile/assets/72551770/591569ea-f3b4-4495-919e-3db65132dfce)
 
+![Uploading image.png…]()
+
+
 # Outdated
 - skirt(not good for clubbing tho) > 
