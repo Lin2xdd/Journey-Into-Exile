@@ -4,3 +4,7 @@
 - skirt > shorts
 - Black leather boots
 - multi-strap leg garter
+
+# Ideas
+
+![image](https://github.com/Lin2xdd/Journey-Into-Exile/assets/72551770/da26c94e-c332-4b0b-89c2-891e17cc02be)
