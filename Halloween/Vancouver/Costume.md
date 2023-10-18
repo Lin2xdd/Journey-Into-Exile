@@ -19,3 +19,46 @@ shorts /one-piece
 
 # Final Plan
 - Cargo skirts, black long boots; tank top; long coat covering face and hair; sleeve with finger hole.
+
+## Top
+https://ca.thekriptstore.com/collections/tops/products/valli-top
+
+https://ca.thekriptstore.com/collections/tops/products/carli-top
+
+https://ca.thekriptstore.com/collections/tops/products/stellan-top
+
+https://ca.thekriptstore.com/collections/tops/products/famke-bodysuit
+
+https://ca.thekriptstore.com/collections/tops/products/titan-bodysuit
+
+https://ca.thekriptstore.com/collections/tops/products/beckett-bodysuit-black
+
+https://ca.thekriptstore.com/collections/tops/products/iggy-top-desert
+
+https://ca.thekriptstore.com/collections/tops/products/beckett-bodysuit-brown
+
+https://ca.thekriptstore.com/collections/tops/products/axl-top-black
+
+https://ca.thekriptstore.com/collections/tops/products/marisela-top
+
+https://ca.thekriptstore.com/collections/tops/products/breena-top
+
+## Bottom
+https://ca.thekriptstore.com/collections/bottoms/products/dusk-cargo-skirt
+
+https://www.aelfriceden.com/collections/womens-skirts/products/fringe-wrinkle-washed-denim-skirt?variant=43575874781346
+
+https://www.aelfriceden.com/collections/womens-skirts/products/asymmetrical-pocket-belt-skirt?variant=43254786556066
+
+https://www.aelfriceden.com/collections/womens-skirts/products/solid-belt-skirt?variant=43192394678434
+
+https://www.kollyy.com/products/cotton-metal-detail-zip-up-plain-short-skirt-15884386?variant=1721770
+
+https://www.kollyy.com/products/suede-metal-detail-gradient-short-skirt-16047091?variant=1756049
+
+https://www.kollyy.com/products/pu-pleated-removable-straps-punk-plain-short-skirt-15896816?variant=1724005
+
+# To-do list
+- jacket; sleevesm face covers; boots; boob covers and probably stockings??
+
+https://www.aelfriceden.com/collections/womens-skirts/products/asymmetrical-pocket-belt-skirt?variant=43254786556066
