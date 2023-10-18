@@ -58,7 +58,9 @@ https://www.kollyy.com/products/suede-metal-detail-gradient-short-skirt-16047091
 
 https://www.kollyy.com/products/pu-pleated-removable-straps-punk-plain-short-skirt-15896816?variant=1724005
 
-# To-do list
-- jacket; sleevesm face covers; boots; boob covers and probably stockings??
 
 https://www.aelfriceden.com/collections/womens-skirts/products/asymmetrical-pocket-belt-skirt?variant=43254786556066
+
+# To-do list
+- jacket; sleevesm face covers; boots; boob covers and probably stockings?? and accessories
+- Check out shop kolly for jackets and skirts. Check nevstudio for jackets and other stuff
