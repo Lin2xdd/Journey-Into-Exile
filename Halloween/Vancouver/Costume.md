@@ -17,5 +17,5 @@ shorts /one-piece
 ![Uploading image.png…]()
 
 
-# Outdated
-- skirt(not good for clubbing tho) > 
+# Final Plan
+- Cargo skirts, black long boots; tank top; long coat covering face and hair; sleeve with finger hole.
