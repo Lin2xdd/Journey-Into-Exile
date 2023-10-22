@@ -1,5 +1,5 @@
 # Shape
-- East west shaep
+- saggy and East west shaep
 - Coverage: half
 - Strap: wide
 - Front open
