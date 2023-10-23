@@ -7,6 +7,7 @@
 - Is it chaper to buy local or what?
 - Different brands?
 - Scenarios: earbuds for workout; headphones for all others.
+- Temperature: low temperature itself won't affect the earphones, but lithium battery runs faster in winters; and entering cold to warm place, make sure it's shut down and warmed up before turning it back on(like how glasses work).
 
 # Other things to think about
 - Audio codec and phone type; music frequency and more
