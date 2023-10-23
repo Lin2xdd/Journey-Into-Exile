@@ -4,4 +4,6 @@
 - Easy to carry? Temprature in winers?
 - Over-ear headphones vs earbuds
 - Is it easy for mom to carry over?
-- Is it easier to buy local or what?
+- Is it chaper to buy local or what?
+- Different brands?
+- Scenarios: earbuds for workout; headphones for all others.
