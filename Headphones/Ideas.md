@@ -7,3 +7,7 @@
 - Is it chaper to buy local or what?
 - Different brands?
 - Scenarios: earbuds for workout; headphones for all others.
+
+# Other things to think about
+- Audio codec and phone type; music frequency and more
+https://www.soundguys.com/headphones-buying-guide-8290/
