@@ -23,3 +23,7 @@ https://www.soundguys.com/headphones-buying-guide-8290/
 - Figure out the specs on the page
 https://www.bestbuy.ca/en-ca/product/jbl-tune-710bt-over-ear-sound-isolating-bluetooth-headphones-black/16697688
 - Get something before Wednesday
+
+# More ideas
+- Do I buy 0, 1 or two from the store? Or do I buy here? What else can I buy? Price, date released, warranty, easy to pack, needs, scenarios?
+- The earbuds were released in 2021 september. Check out more platform: amazon, official, facebook? 
