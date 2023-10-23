@@ -26,4 +26,5 @@ https://www.bestbuy.ca/en-ca/product/jbl-tune-710bt-over-ear-sound-isolating-blu
 
 # More ideas
 - Do I buy 0, 1 or two from the store? Or do I buy here? What else can I buy? Price, date released, warranty, easy to pack, needs, scenarios?
-- The earbuds were released in 2021 september. Check out more platform: amazon, official, facebook? 
+- The earbuds were released in 2021 september. Check out more platform: amazon, official, facebook?
+- Check out more about tech reviews?
