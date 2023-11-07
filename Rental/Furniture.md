@@ -10,7 +10,9 @@
 - Comforter sets for winters too.
 - Wayfair: deliver too late, not really cheap; Amazon: deliver fast, cheap, bad reviews; Ikea: not really many choices and not cheap! FB: not really cheap than the online options.
 - Common questions about mattress: support on the edge; or sink in the center after a while; or roll to the heavier side if multiple ppl sleep there; ripped package in shipping; dead bugs in the wraps; won't fully inflate; won't inflate to the advertised size; can't roll back and have a full refund
-
+- Idea: check the refund policy. And pick the one that has least bad review!
+- Tutorial
+https://www.reddit.com/r/BuyItForLife/comments/y23lqf/mattresses_whats_the_best_to_go_for/
 
 # Black friday
 Desk & chair. 
