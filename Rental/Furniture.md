@@ -13,6 +13,7 @@
 - Idea: check the refund policy. And pick the one that has least bad review!
 - Tutorial
 https://www.reddit.com/r/BuyItForLife/comments/y23lqf/mattresses_whats_the_best_to_go_for/
+- Ideas: check Amazon for return policy and reviews. 
 
 # Black friday
 Desk & chair. 
