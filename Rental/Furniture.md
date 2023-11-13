@@ -17,12 +17,13 @@ https://www.reddit.com/r/BuyItForLife/comments/y23lqf/mattresses_whats_the_best_
 - Solution: box spring for twin XL (marketplace); queen mattress and bed(facebook); folding tables and chairs*4 (facebook marketplace)
 
 # Next batch
-- Kitchen: pots (large & small, with lids; try facebook and amazon first); oven?
+- Kitchen: pots (large & small, with lids; try facebook and amazon first); utility cart; oven?
 - Bedroom: desk and chair;
-- Living room: bed tray, sound system & neon lights
+- Living room: bed tray, sound system & neon lights; rug; 
 
 # Next batch + 2
 - Bedroom: bookshelves, curtains on the window; Room divider? Plants?
+- Disco light bulb; projector.
 
 # Black friday
 Desk & chair. 
