@@ -1,2 +1,2 @@
 - Needs: gym, swimming pool & occasional arena
-- Membership: 4 months + upgrade(Is it possible to include family as well?); family package? Alumni rate applies to which one?
+- Membership: package with me and my mom for the 4 months? how to upgrade to annual and the price difference? alumni discount? 
