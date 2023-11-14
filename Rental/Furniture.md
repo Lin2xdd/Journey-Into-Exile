@@ -24,6 +24,7 @@ https://www.reddit.com/r/BuyItForLife/comments/y23lqf/mattresses_whats_the_best_
 # Next batch + 2
 - Bedroom: bookshelves, curtains on the window; Room divider? Plants?
 - Disco light bulb; projector.
+- Kicthen: more bowls and plates
 
 # Black friday
 Desk & chair. 
