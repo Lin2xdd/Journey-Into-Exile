@@ -1,6 +1,6 @@
 # Furniture
 ## Ergonomic chair & desk
-- Chair: features(adjustable seats and headset with pads, wheels); price; delivery; life cycle(some surface will break after a while, or the parts); 
+- Chair: features(adjustable seats and headset with pads, wheels); price; delivery; life cycle(some surface will break after a while, or the parts); pair with the desk.
 ## Pans & Pots
 
 # Clothes
