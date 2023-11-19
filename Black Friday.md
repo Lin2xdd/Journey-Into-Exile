@@ -1,6 +1,7 @@
 # Furniture
-- Ergonomic chair & desk
-- Pans & Pots
+## Ergonomic chair & desk
+- Chair: features(adjustable seats and headset with pads, wheels); price; delivery; life cycle(some surface will break after a while, or the parts); 
+## Pans & Pots
 
 # Clothes
 - Winter jackets for me; hoodie and pants for me
