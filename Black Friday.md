@@ -1,6 +1,8 @@
 # Furniture
 ## Ergonomic chair & desk
 - Chair: features(adjustable seats and headset with pads, wheels); price; delivery; life cycle(some surface will break after a while, or the parts); pair with the desk.
+- Desk: small desk with shelves(to store my random stuff); better with adjustable stand on the deks; flat surface near the bed. Sturdy for longer use; delivery; price. (Easy assembly, sturdy table, with shelves and drawers). 
+
 ## Pans & Pots
 
 # Clothes
