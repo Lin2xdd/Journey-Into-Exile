@@ -2,6 +2,6 @@
 - Ergonomic chair & desk
 - Pans & Pots
 
-# Clothees
+# Clothes
 - Winter jackets for me; hoodie and pants for me
-- sweaters for mom.
+- sweaters; pants; thermo; hoodies; beanies and scarves for mom.
