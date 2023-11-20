@@ -6,5 +6,5 @@
 ## Pans & Pots
 
 # Clothes
-- Winter jackets for me; hoodie and pants for me
+- Winter jackets for me; hoodie and pants for me; coat; sports bra and sports pants. 
 - sweaters; pants; thermo; hoodies; beanies and scarves for mom.
